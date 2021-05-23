@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ema00chiaro
-- 👀 I’m interested in Anime (xd normie)
+- 👀 I’m interested in anime (xd normie)
 - 🌱 I’m currently learning I.T.
 - 📫 How to reach me fagni.emanuele@gmail.com
 
